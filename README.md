@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Xinyu You (游薪渝)
+## 👋 Hi, I'm Xinyu You
 
 I'm passionate about technology, literature and nature. 
 
