@@ -4,7 +4,7 @@ I'm passionate about technology, literature and nature.
 
 Currently, I'm a Software Engineer with over 5 years of experience at Alibaba Taobao Technology.
 
-In my professional role, I often take on both technical and product-oriented responsibilities, with a working knowledge of Sketch and a strong sense of aesthetics and product sensibility.
+In my professional role, I often take on both technical and product-oriented responsibilities. I also have a strong sense of aesthetics and product sensibility.
 
 ## ✨ **Interests**
 - 📖 Reading · ⛰️ Traveling · 📷 Photography
