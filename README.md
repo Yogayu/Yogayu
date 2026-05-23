@@ -2,8 +2,6 @@
 
 I'm passionate about technology, literature and nature. 
 
-Currently, I'm a Software Engineer with over 5 years.
-
 In my professional role, I often take on both technical and product-oriented responsibilities. I also have a strong sense of aesthetics and product sensibility.
 
 ## ✨ **Interests**
